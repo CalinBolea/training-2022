@@ -1,4 +1,4 @@
 # training-2022
 
 
-asfsrfrsfrs
+acum e cald afara?
